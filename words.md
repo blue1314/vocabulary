@@ -9,4 +9,9 @@
 10. strand  处于困境的
 11. demoralize  使士气低落、使意志消沉
 12. outfit  全套装备
-13. 
+13. peddle  传播、散播
+14. flea market  跳蚤市场
+15. diversified  多样化的
+16. barter  作物物交换
+17. commensurate  相等的、相称的
+18. causality  因果关系
